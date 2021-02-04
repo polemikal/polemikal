@@ -6,4 +6,5 @@
 
 # Social Media
 
-**=>** [Discord](https://discordapp.com/users/593509502087725252)
+**•** [Discord](https://discordapp.com/users/593509502087725252)
+**•** [Instagram](https://www.instagram.com/polemikal_)
